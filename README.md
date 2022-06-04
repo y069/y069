@@ -5,7 +5,6 @@
 - 🚀 Spake Germany 🇩🇪
 - 🪐 compatriot Kurd
 - 🛰️ discord yce#1460
-- 
 
 <!--
 **y069/y069** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
