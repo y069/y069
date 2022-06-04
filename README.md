@@ -1,4 +1,5 @@
 ### Hi there 👋
+- 🎮 i like Video Games
 
 <!--
 **y069/y069** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
