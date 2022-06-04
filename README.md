@@ -1,5 +1,4 @@
-### Hi there 
-- 🌠 things about me
+### 🌠 things about me
 - -------------------
 - 🎮 i like Video Games
 - 🚀 Spake Germany 🇩🇪
