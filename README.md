@@ -1,7 +1,7 @@
 ### 🌠 things about me
 - -------------------
 - 🎮 i like Video Games
-- 🚀 Spake Germany 🇩🇪
+- 🚀 Spake Germany
 - 🪐 compatriot Kurd
 - 🛰️ discord yce#1460
 
