@@ -3,7 +3,7 @@
 - 🎮 i like Video Games
 - 🚀 Spake Germany
 - 🪐 compatriot Kurd
-- 🛰️ discord yce#1460
+- 🛰️ discord yce#1421
 
 - -------------------
 
