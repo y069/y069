@@ -26,8 +26,4 @@
 
 ![snake_gif](https://github.com/pwned-sys/pwned-sys/blob/output/snake.svg)
 
-<br clear="both">
-
-<img src="https://discord.c99.nl/widget/theme-1/949366245910773790.png"/>
-
 ###
